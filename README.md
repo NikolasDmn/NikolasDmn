@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @NikolasDmn
-- 👀 I’m interested in copmuter science and natural sciences
